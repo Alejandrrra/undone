@@ -1,3 +1,3 @@
 # undone
 
-În FORȚĂ pornește Alejandraaa!
+Ce în FORȚĂ pornește Alejandraaa!
